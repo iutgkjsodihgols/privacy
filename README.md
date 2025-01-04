@@ -58,4 +58,4 @@ Email: richifyfarm@gmail.com
 
 By using Richify Farm, you acknowledge and agree to this Privacy Policy. Thank you for trusting us!
 
-Let me know if you need further edits or customizations!
+Let me know if you need further edits or customizations! 
